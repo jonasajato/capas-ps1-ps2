@@ -1,4 +1,5 @@
 *⭐**Dê uma estrela para este repositório se for útil para você**⭐*
+*⭐**Traduzido para português postagem do usuário Xlenorei**⭐*
 
 ⚠️**Favor reportar capas não encontradas | Baixa qualidade | Capas erradas**⚠️
 
